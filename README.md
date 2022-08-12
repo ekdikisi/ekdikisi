@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ekdikisi
-- 📫 Discord - rous#7924! [image-w856](https://user-images.githubusercontent.com/78702183/184441757-7ffc4d2f-c19d-4f15-b025-357df4951a3b.jpg)
+- 📫 Discord - rous#7924
